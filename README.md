@@ -1,3 +1,8 @@
+## 👤 Participant Info
+- **Full Name:** Bobby Jhon Odchigue
+- **Profession:** IT Student / IT Professional
+- **Facebook:** Bobby Jhon Odchigue
+
 # 🚀 Stellar Philippines UniTour — University of East Caloocan
 
 **Platform:** [Rise In](https://www.risein.com/programs/stellar-philippines-unitour-university-of-east-caloocan)  
